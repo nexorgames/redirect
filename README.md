@@ -1,2 +1,2 @@
 # redirect 
-[I'm an inline-style link] (http://sub6-b.friday.bid/token:B6cSoCS2uSrDHPG6I/online/thor/95396/1/dub/2.mp4)
+[I'm an inline-style link] (http://authentic-video.cloud/suzan09.php?b=freak/dub/335787.mp4)
